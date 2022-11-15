@@ -3,4 +3,4 @@ Hello, on remembrance day I did not commit anything about it so today I will tal
 
 -Just saying, remembrance day assembly are really long
 
-Anyway for remembrance day I had to do art and It took me five plus days to finish the grass. 
+Anyway for remembrance day I had to do art and It took me five plus days to finish the grass. Compare the poppy to the grass and the time difference is huge.
